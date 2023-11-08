@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Sultona
+- 👀 you are strong
+- 💞️And Allah knows best💘
+-  ~do ur thing^^🦋
+-  🪐술타나🐼💜 
